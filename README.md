@@ -1,2 +1,1 @@
-### We all know that Cengage sucks!
-Here are the anwers to their lab...Diane's Run
+Here are the anwers to the lab Diane's Run
